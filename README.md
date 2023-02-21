@@ -47,9 +47,6 @@ i thought i was so funny waiting til the 27th to make this archive
 ![screenshot272](https://user-images.githubusercontent.com/53798365/220270513-52a3f06c-daed-4722-a7ef-652b573415a5.jpg)
 [Download](https://drive.google.com/file/d/1PGEgXk-n5NU4a0sPrR8sFWAsirTYRsPl/view?usp=share_link)
 
-
-![screenshot272](https://user-images.githubusercontent.com/53798365/220270421-674162dc-30a8-42da-98aa-781d9667a6ec.jpg)
-
 [credit to the original skin creator :3](https://www.reddit.com/r/OsuSkins/comments/mqc75l/hu_tao_genshin_impact_skin/)
 
 # rammu hidden
