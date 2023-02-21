@@ -29,6 +29,7 @@ i thought i was so funny waiting til the 27th to make this archive
 # Hu Tao Edit
 
 ![screenshot215](https://user-images.githubusercontent.com/53798365/220248627-82b595b1-3da2-4020-b003-37118f875068.jpg)
+[Download](https://drive.google.com/file/d/1OPhOiSxyZYkP1GXJjTCninzoPv2rjTvm/view?usp=share_link)
 
 # Space Blobs Edit ver. 2
 ![screenshot278](https://user-images.githubusercontent.com/53798365/220272413-85b95cc1-fbd3-4492-99a3-d43c3a6c7cbd.jpg)
@@ -48,8 +49,6 @@ i thought i was so funny waiting til the 27th to make this archive
 
 
 ![screenshot272](https://user-images.githubusercontent.com/53798365/220270421-674162dc-30a8-42da-98aa-781d9667a6ec.jpg)
-
-[Download](https://drive.google.com/file/d/1OPhOiSxyZYkP1GXJjTCninzoPv2rjTvm/view?usp=share_link)
 
 [credit to the original skin creator :3](https://www.reddit.com/r/OsuSkins/comments/mqc75l/hu_tao_genshin_impact_skin/)
 
