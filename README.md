@@ -7,23 +7,38 @@
 <br>
 
 # Cyrolia 12/06/22
-
+![screenshot302](https://user-images.githubusercontent.com/53798365/220502951-ca1f5de5-77f2-4788-a285-1672285b81be.jpg)
+[Download](https://drive.google.com/file/d/1b2x040jLJhq9hHwMQavE1QX0O9Mv1N-I/view?usp=share_link)
+  
 # Cyrolia 10/18/22
-
+![screenshot299](https://user-images.githubusercontent.com/53798365/220502354-cd5bcd35-19db-4543-a5df-87b00d585dbf.jpg)
+[Download](https://drive.google.com/file/d/1HBzgHFFiXKV9cMR9Zj5qklm-Ax1us8Ym/view?usp=share_link)
+  
 # Cyrolia 09/21/22
 ![screenshot200](https://user-images.githubusercontent.com/53798365/220239098-d495298c-45b0-48ad-84ee-d8f3fe3c3329.jpg)
 [Download](https://drive.google.com/file/d/1_HBMyfniFC82GAbGEHAGBmdhMBedcRPa/view?usp=share_link)
+  
 # Cyrolia 09/15/22
-
-#Cyrolia 08/06/22
-
+![screenshot298](https://user-images.githubusercontent.com/53798365/220502146-c72202df-4512-4d8e-ad6f-b0275f4cc0b6.jpg)
+[Download](https://drive.google.com/file/d/1UsA64WjuCRzIOxl9GQSkHjhKoUoAAHcW/view?usp=share_link)
+  
+# Cyrolia 08/06/22
+![screenshot296](https://user-images.githubusercontent.com/53798365/220501573-bba0d8a0-a80b-4271-80b5-60af1d4e70c7.jpg)
+[Download](https://drive.google.com/file/d/1rS_jpmE2VRAObywJlXbkSl7OxT-xP2Z2/view?usp=share_link)
+  
 # Cyrolia 07/29/22
-
+![screenshot294](https://user-images.githubusercontent.com/53798365/220501130-0904cf39-2b98-4bba-8490-249c8d854b57.jpg)
+[Download](https://drive.google.com/file/d/1M9a_uQ8Gan9FCnkqODTfXvq8NKb96A_h/view?usp=share_link)
+  
 # Cyrolia 07/27/22
 i thought i was so funny waiting til the 27th to make this archive
 [Download](https://drive.google.com/file/d/1_HBMyfniFC82GAbGEHAGBmdhMBedcRPa/view?usp=share_link)
+![screenshot291](https://user-images.githubusercontent.com/53798365/220500872-a3165037-960f-4fbf-968c-8549624e63a6.jpg)
 
 # Cyrolia 07/14/22
+ ![screenshot288](https://user-images.githubusercontent.com/53798365/220500332-8a062db2-6cc2-4650-bb89-f2bd8209ad12.jpg)
+[Download](https://drive.google.com/file/d/1gAPiYGloodcweVWzx2_GKDesEOkV2lSy/view?usp=share_link)   
+  
 </details>
 
 # Hu Tao Edit
@@ -60,7 +75,7 @@ i thought i was so funny waiting til the 27th to make this archive
 [credit to the original creator](https://www.reddit.com/r/OsuSkins/comments/sske67/hdsd_std_only_midnight_moon_project/)
 
 
-#Purple Mathi Edit
+# Purple Mathi Edit
 ![screenshot263](https://user-images.githubusercontent.com/53798365/220267404-0fc82777-cb90-4847-a886-645cbedf6353.jpg)
 [Download](https://drive.google.com/file/d/1OqEqkL0c6MmJ8Y6roPhCMNPpY6RPO3AH/view?usp=share_link)
 
