@@ -46,6 +46,8 @@ i thought i was so funny waiting til the 27th to make this archive
 ![screenshot215](https://user-images.githubusercontent.com/53798365/220248627-82b595b1-3da2-4020-b003-37118f875068.jpg)
 [Download](https://drive.google.com/file/d/1OPhOiSxyZYkP1GXJjTCninzoPv2rjTvm/view?usp=share_link)
 
+[credit to the original skin creator :3](https://www.reddit.com/r/OsuSkins/comments/mqc75l/hu_tao_genshin_impact_skin/)
+
 # Space Blobs Edit ver. 2
 ![screenshot278](https://user-images.githubusercontent.com/53798365/220272413-85b95cc1-fbd3-4492-99a3-d43c3a6c7cbd.jpg)
 [Download](https://drive.google.com/file/d/13ttrnqgsWYPzuganp2x7F4sX_VO9n_LL/view?usp=share_link)
@@ -62,7 +64,7 @@ i thought i was so funny waiting til the 27th to make this archive
 ![screenshot272](https://user-images.githubusercontent.com/53798365/220270513-52a3f06c-daed-4722-a7ef-652b573415a5.jpg)
 [Download](https://drive.google.com/file/d/1PGEgXk-n5NU4a0sPrR8sFWAsirTYRsPl/view?usp=share_link)
 
-[credit to the original skin creator :3](https://www.reddit.com/r/OsuSkins/comments/mqc75l/hu_tao_genshin_impact_skin/)
+[credit to the original creator](https://www.reddit.com/r/OsuSkins/comments/oh239q/prjct_x_sdhd_all_modes_169_animated/)
 
 # rammu hidden
 ![screenshot269](https://user-images.githubusercontent.com/53798365/220269823-e33d3d26-7b95-4e70-913b-d8308794587e.jpg)
