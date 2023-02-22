@@ -56,7 +56,7 @@ i thought i was so funny waiting til the 27th to make this archive
 ![screenshot280](https://user-images.githubusercontent.com/53798365/220273466-843aed87-9acf-41ed-a681-62bb4aaedc1f.jpg)
 [Download](https://drive.google.com/file/d/1vR37TKSipGVNtoQe_lcUOG4cGfebIgkJ/view?usp=share_link)
 
-# Project X
+# prjct. X
 ![screenshot274](https://user-images.githubusercontent.com/53798365/220271671-85bec6f9-afeb-4886-9776-f5059832e59b.jpg)
 [Download](https://drive.google.com/file/d/1AdXZGzAPxjGrvXDV73F4hiAh4GMbhDx-/view?usp=share_link)
 
