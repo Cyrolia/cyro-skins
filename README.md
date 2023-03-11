@@ -1,6 +1,6 @@
 # Saggitarius A Edit (Current)
-![screenshot316](https://user-images.githubusercontent.com/53798365/222996981-bfeedc1e-874c-4b4b-acb7-aaf194104833.jpg)
-[Download](https://drive.google.com/file/d/1IoBLLJip_nMLGtVTk_8wVd7Bv5IqO-OP/view?usp=share_link)
+![screenshot321](https://user-images.githubusercontent.com/53798365/224509313-1dbae221-b85f-471a-a049-8f7885412459.jpg)
+[Download](https://drive.google.com/file/d/1omIZjfBt_5mJZe7vUwPRCC3o0uqXt7dK/view?usp=share_link)
 
 # Cyrolia 2/20/23
 ![screenshot199](https://user-images.githubusercontent.com/53798365/220236763-1e50b5a1-3a8a-40ed-a0fa-96f748712cc1.jpg)
@@ -9,6 +9,10 @@
 <details>
 <summary>Click here for previous versions of this skin</summary>
 <br>
+  
+# Cyrolia EZ 01/08/22
+![screenshot326](https://user-images.githubusercontent.com/53798365/224509252-48b08fa9-d77f-4eff-b065-fce78873dd97.jpg)
+[Download](https://drive.google.com/file/d/1qzBYOHagVMRAJIILbTFxSQCbWR5wjm08/view?usp=share_link)
 
 # Cyrolia 12/06/22
 ![screenshot302](https://user-images.githubusercontent.com/53798365/220502951-ca1f5de5-77f2-4788-a285-1672285b81be.jpg)
@@ -51,6 +55,14 @@ i thought i was so funny waiting til the 27th to make this archive
 [Download](https://drive.google.com/file/d/1OPhOiSxyZYkP1GXJjTCninzoPv2rjTvm/view?usp=share_link)
 
 [credit to the original skin creator :3](https://www.reddit.com/r/OsuSkins/comments/mqc75l/hu_tao_genshin_impact_skin/)
+
+# Cyro DT
+![screenshot322](https://user-images.githubusercontent.com/53798365/224508801-daab1e3c-6f95-4a5f-a5cb-be58755bb35c.jpg)
+[Download](https://drive.google.com/file/d/1xMZO-0qmOkfU0QDi4vvmUYhEMqaZ1X7e/view?usp=share_link)
+
+# Cyro HDDT
+![screenshot324](https://user-images.githubusercontent.com/53798365/224508907-b9024b67-c965-47ca-8d02-5e7abf2ef7ed.jpg)
+[Download](https://drive.google.com/file/d/1hYfpMz-9Aje8dHkFpDgs6XUHKsAS39XN/view?usp=share_link)
 
 # Space Blobs Edit ver. 2
 ![screenshot278](https://user-images.githubusercontent.com/53798365/220272413-85b95cc1-fbd3-4492-99a3-d43c3a6c7cbd.jpg)
