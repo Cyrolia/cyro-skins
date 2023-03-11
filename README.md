@@ -108,8 +108,9 @@ i thought i was so funny waiting til the 27th to make this archive
 <summary>Click here for previous versions of this skin </summary>
 <br>
 
-# Minimaly Edit DT 5/25/22
-  
+# Minimaly Edit DT 05/25/22
+![screenshot329](https://user-images.githubusercontent.com/53798365/224509531-511525e4-271e-455d-bf63-7f7e6b6f8e27.jpg)
+[Download](https://drive.google.com/file/d/1WoM9JadASsACXujg_fKbn7IFI8_y6B0X/view?usp=share_link)
   
   this one is rlly bad LMAO why did i use this
   
