@@ -181,9 +181,6 @@ dont ask why the btmc replay instead of my own im just getting the screenshots f
 <details>
   <summary></summary>
 <video src=https://user-images.githubusercontent.com/53798365/220257854-f8980813-0fd8-4651-8450-62a45e469122.mp4></video>
-  
-  unmute for maximum effect
-  
 [Download](https://osu.ppy.sh/community/forums/topics/191909?n=1)
   
 </details>
