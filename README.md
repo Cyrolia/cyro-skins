@@ -184,5 +184,6 @@ dont ask why the btmc replay instead of my own im just getting the screenshots f
   
   unmute for maximum effect
   
-  this is meant to be a shitpost/easter egg but if you actually want the skin you can find it [here](https://osu.ppy.sh/community/forums/topics/191909?n=1)
+[Download](https://osu.ppy.sh/community/forums/topics/191909?n=1)
+  
 </details>
