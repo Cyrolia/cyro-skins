@@ -167,11 +167,8 @@ RG
 
 # BTREEMC ⌞Treedom Dive 🌲⌝
 ![QbJ4dH3](https://user-images.githubusercontent.com/53798365/220242685-5ae35064-a8c6-47f8-80d0-d0f262ee8f54.png) 
-dont ask why the btmc replay instead of my own im just getting the screenshots from the r/osuskins post i made of it
-
-[Download](https://drive.google.com/file/d/1wlM9QybUKMDb1F7jp0UXeiXd721RwM86/view)
-
-[also here's the reddit post i guess](https://www.reddit.com/r/OsuSkins/comments/o2ae19/btreemc_treedom_dive/)
+dont ask why the btmc replay instead of my own this ss is from ages ago
+[Download](https://drive.google.com/file/d/1wlM9QybUKMDb1F7jp0UXeiXd721RwM86/view
 
 # Hugofrost Edit
 ![screenshot204](https://user-images.githubusercontent.com/53798365/220241554-753dbb47-949d-4417-a0aa-e3adeec84a15.jpg)
