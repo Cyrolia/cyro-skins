@@ -158,7 +158,7 @@ RG
 
 [credit to the original skin creator :)](https://osu.ppy.sh/community/forums/topics/720599?n=1)
 
-# HugoFrost Edit (newer version)
+# HugoFrost Edit V2
 ![screenshot210](https://user-images.githubusercontent.com/53798365/220245344-9547ad3d-8c2e-478b-b12a-7b9b9ed4a785.jpg)
 [Download](https://drive.google.com/file/d/1USIdWQ_3gtJAFben5anVzt39F6JEvzL5/view?usp=share_link)
 
