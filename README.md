@@ -47,9 +47,8 @@
 [Download](https://drive.google.com/file/d/1M9a_uQ8Gan9FCnkqODTfXvq8NKb96A_h/view?usp=share_link)
   
 # Cyrolia 07/27/22
-i thought i was so funny waiting til the 27th to make this archive
-[Download](https://drive.google.com/file/d/1_HBMyfniFC82GAbGEHAGBmdhMBedcRPa/view?usp=share_link)
 ![screenshot291](https://user-images.githubusercontent.com/53798365/220500872-a3165037-960f-4fbf-968c-8549624e63a6.jpg)
+[Download](https://drive.google.com/file/d/1_HBMyfniFC82GAbGEHAGBmdhMBedcRPa/view?usp=share_link)
 
 # Cyrolia 07/14/22
  ![screenshot288](https://user-images.githubusercontent.com/53798365/220500332-8a062db2-6cc2-4650-bb89-f2bd8209ad12.jpg)
@@ -124,8 +123,6 @@ i thought i was so funny waiting til the 27th to make this archive
 # Minimaly Edit DT 05/25/22
 ![screenshot329](https://user-images.githubusercontent.com/53798365/224509531-511525e4-271e-455d-bf63-7f7e6b6f8e27.jpg)
 [Download](https://drive.google.com/file/d/1WoM9JadASsACXujg_fKbn7IFI8_y6B0X/view?usp=share_link)
-  
-  this one is rlly bad LMAO why did i use this
   
 # Minimaly Edit 05-18-22
  ![screenshot256](https://user-images.githubusercontent.com/53798365/220265623-3e9ebf1f-1ace-4a50-a790-fe9ec6d2a2cb.jpg)
